@@ -1,2 +1,2 @@
-# focusfran-ais
+# focusfranç-ais
 apprendre avec plaisir
